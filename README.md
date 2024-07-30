@@ -1,2 +1,3 @@
-# Wings_From_Sha_Ma_Yim-
+# Hah Mah Yah Note Meh California
+המינות מקליפורניה  
 The Basics and Elementary explanations on the discusions of Torah
